@@ -1,1 +1,0 @@
-# social-masai-app
